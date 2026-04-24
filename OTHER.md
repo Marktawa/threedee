@@ -1,3 +1,7 @@
 ## Hiking
 
 What does a good hike look like? It looks like dust aligned hiking shoes you can run in. It looks like khaki cargo pants, baggy at the top, narrow at the bottom. It looks like a multi-color bucket hat. It looks like comfy Rayban shades. It looks like white Polo golfers. It looks like thick white sports socksd. It looks like a multi-strap backpack with all the convenient side pockets enough to ensure you are well strapped. It looks like a heat reflective water bottle good enough for a sip here and there. It looks like a slow walk, then a run and then a cool down walk after. It looks bushes, flowers, trees, grass, shades, greavel roads, tarmac, people, birds, dogs, farms, cars and all else between.
+
+## Malls
+
+Digital poster at mall. Pay for ads. demo for admin for adding ads. demo of display at front. format guidelines. daily rate. peak period rate.
