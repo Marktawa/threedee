@@ -1,3 +1,15 @@
+## Plan for Three Dee Day Care School
+
+The proposal for Three Dee Day Care School will include the proposal document and my CV. The proposal document will include a section on Parent Acquisiton, Increasing Followers, Increasing Engagement on the Page, Cross Posting, Participating in Communities that help the page and lastly advertising strategies.
+
+Documents that accompany the school are also necessary. These include the Meal Plan, the Price Card, the School Prospectus, the Transport Routes Doc (Routes and Schedules), and any other documents. Of course considerations have to be made with regards to the visual design of all this, with clear explanations accompanying the requests so that the staff understands why they should provide the information and what purpose it serves.
+
+A note on Advertising - it ought to be done when everything else has been set up.
+
+## Woodlands School as source to copy
+
+Remember to include some of the insights gathered from the Facebook page of that school in Woodlands. The stuff they outlined was beautifully done. The design maybe copied as well. The information they gave included the prices, the services offered, when they are open. A great illustration
+
 ## Overview from Interaction with Muzumala (Principal for Three Dee)
 
 ### Introduction
@@ -32,7 +44,30 @@ Set up fee is K600. Ongoing page management fee is K150 per month.
 
 ### How effective is a Facebook page
 
-In retrospect, this question was probably asking if a Facebook page is effective in gettng clients, in this case parents to bring their children to the school
+*In retrospect, this question was probably asking if a Facebook page is effective in getting clients, in this case parents to bring their children to the school.*
+
+A Facebook page can help as proof of your school's work. It can showcse the beauty too. It can help attract parents who don't know about your school. It can help attract good teachers to nurture your children.
+
+If you have projects, it can help in accessing funding. All in al the information you showcase to prospective parents helps in relieving them of any doubts.
+
+With time, the more active and visible your page is, the easier it is to handle enquiries from parents looking for a daycare in your area.
+
+### More Details
+
+If the page is already made, I just need to help make sure it is set up properly and includes all the important details parents look for.
+
+For example:
+- A clear and welcoming description of the day care
+- Information about when it was established and its vision
+- A list of activities and services offered (learning, playing, napping, food, transport, etc.)
+- A clearly stated location so parents know where you are
+- Contact numbers and working hours
+- A short section on why parents should choose your day care
+- Frequently asked questions and answers
+- A nice cover picture and profile picture that represent the day care well
+- An introductory post that welcomes visitors when they see your page. All these small details help make the page look professional and help reassure parents who are looking for a daycare for their children.
+
+My role would be to help manage and grow your page. By posting regularly, sharing updates about the daycare, and promoting enrollment. This helps keep the page active so more parents in the area can find and contact you.
 
 ---
 
